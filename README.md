@@ -12,5 +12,8 @@ https://htmlpreview.github.io/?https://github.com/sabaUd24/avvalin-jeddi/blob/ma
 
 
 
+## for reader:
+
+ [] fuck you
 
 
